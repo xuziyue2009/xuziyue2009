@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @xuziyue2009
 - 📫 How to reach me xuziyue202109@163.com/xuziyue202109@outlook.com
 - 😄 Pronouns he/him
-- 🎮 Playing WarThunder Minecraft PVZ
+- 🎮 Playing WarThunder,Minecraft,PVZ
 
 - From Beijing,China
 
